@@ -1,9 +1,3 @@
-**爱来自长安大学!**
-
-**如果你喜欢，请给我一个赞吧！:)**
-
-**Love from CHU!**
-
 **If you like it, please give me a STAR! :)**
 
 ------
